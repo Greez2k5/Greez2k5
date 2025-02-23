@@ -6,5 +6,5 @@
 
 💞️  I’m looking to collaborate on stuff i can use for myself
 
-📫  How to reach me: send me a Mail, or go to mylittleplatoon.de and visit
+📫  How to reach me: send me a Mail, or visit
      me on my Discord
